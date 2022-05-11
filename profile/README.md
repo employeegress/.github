@@ -1,6 +1,6 @@
 ## 互联网民工联盟 Employeegress
 
-**组织代号`employeegress`，`employee`和`congress`的合成词，pronunciation: <em>`/emˈploiēɡrəs/`</em>**
+**employeegress，读音<em>`/emˈploiēɡrəs/`</em>，取词于`employee`和`congress`，意为受雇员工联盟**
 
 
 名字来源：结合国家对**从事信息传输、软件和信息技术服务业**就业者的新[定义](http://www.mohrss.gov.cn/SYrlzyhshbzb/jiuye/gzdt/202108/t20210816_420736.html)
