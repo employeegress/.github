@@ -1,4 +1,4 @@
-## Employeegress｜不良信用互联网企业：违法裁员、违扣工资、拖欠工资等信息收集整理
+## Employeegress｜互联网不良信用企业：违法裁员、违扣工资、拖欠工资等信息收集整理
 
 **employeegress，读音<em>`/emˈploiēɡrəs/`</em>，取词于`employee`和`congress`，可直译词义**
 
